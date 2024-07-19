@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Coding
 - 🌱 I’m currently learning ...Python,Power BI,My SQL,EXCEL,
 - 💞️ I’m looking to collaborate on ... PRojects & analysis 
-- 📫 How to reach me ... dm
+- 📫 How to reach me ... email- yernagulabharat@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
